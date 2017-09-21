@@ -1,5 +1,3 @@
-I think this is how I am supposed to do this.  I need to go to office hours to make sure.  :)
-
 My name is Kyle Alan Walker and I prefer to be called Kyle.
 
 My email address is walkerky@oregonstate.edu
